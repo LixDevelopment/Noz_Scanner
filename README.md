@@ -4,3 +4,5 @@
 
 
 **https://discord.gg/xqB8Gnw9qh**
+
+*ps: Don delete a background.png*
